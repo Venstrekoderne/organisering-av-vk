@@ -43,6 +43,8 @@ Til stede:
  
  * Tom Fredrik
 
+Oppmøteliste basert på selvvalgte navn på Whereby.
+
 ## ÅM 23/02 Velge møteledelse
 
 Møteleder: Daniel

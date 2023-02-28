@@ -3,6 +3,8 @@
 Mandag 27. februar, digitalt på https://whereby.com/venstrekoderne ,
 kl. 20:00-21:00.
 
+[Sakspapirer](https://docs.google.com/document/d/1kAdup8RqxMjIND97STOTyOAYBTIcJIxbG9TNMwqJBGw) og [årsmelding](https://docs.google.com/document/d/1QdYfxQ4LkA4Y-coP9tEkSGnesgexX8V2lWMT4JF284o) sendt ut i forkant.
+
 ## ÅM 23/00 Hilsing
 
 Hilsing fra Mona Lindseth, rågdiver for Guri. Imponert over

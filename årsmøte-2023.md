@@ -133,8 +133,8 @@ Intet.
 
 ## ÅM 23/09 Valg av leder og styre
 
-Ingen andre forslag til leder eller styre enn forslag. Foreslått styre
-valgt ved akklamasjon.
+Ingen andre forslag til leder eller styre enn Daniels forslag
+sakspapirene. Foreslått styre valgt ved akklamasjon.
 
 Gammel styre takkes av.
 
